@@ -1,1 +1,1 @@
-# gn.sol
+JUST SAY GN                                  WE ARE BASED#
